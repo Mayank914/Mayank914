@@ -13,7 +13,7 @@
 
 ## 📫 How to reach me:
 - [Email](mayank072003@gmail.com)
-- GitHub Issues on this profile!
+- GitHub related issues on this profile!
 
 ## 💬 Pronouns:
 - He/Him
